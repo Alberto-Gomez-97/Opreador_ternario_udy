@@ -1,0 +1,1 @@
+# Opreador_ternario_udy
